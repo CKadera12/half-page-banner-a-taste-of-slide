@@ -1,1 +1,0 @@
-# half-page-banner-a-taste-of-slide
